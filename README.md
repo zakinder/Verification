@@ -1,5 +1,7 @@
 # Verification
 
+## Sakinder Ali :       
+    "Light never bend its black hole that bend."
 
 
 # Start To End Verification
