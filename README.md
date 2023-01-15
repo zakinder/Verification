@@ -3,6 +3,10 @@
 ## Sakinder Ali :       
     "Light never bend its black hole that bend."
 
+1. Before creation was structure and not structure.
+
+
+
 
 # Start To End Verification
 
