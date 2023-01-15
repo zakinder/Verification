@@ -3,8 +3,8 @@
 ## Sakinder Ali :       
     "Light never bend its black hole that bend."
 
-1. Before creation was structure and not structure.
-
+1. Before creation was structure or not structure.
+2. Learned its existance.
 
 
 
