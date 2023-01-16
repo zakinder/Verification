@@ -11,6 +11,8 @@ Below lines are from all the furthest of all time. Not easy to write below lines
 3. Once learned its exitance from its own exitance selected some region of its own to create bing bang theory.
 4. So far visible universe.
 
+Next Topic:
+1. Want is in every creation from the source then down the road comes menu of choices or choices of menu in other words "The Matrix-Movie".
 
 # Start To End Verification
 
