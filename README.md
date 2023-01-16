@@ -23,4 +23,4 @@ Next Topic:
 ![Ali](https://github.com/zakinder/Verification/blob/main/uvm_top.png "Ali")
 
 
-Hint: Pain at 425NORTHFREDERICK AVE 11B MD 20877. ANY DOUT 4+2+5=11.
+Hint: 425 or 4+2+5=11.
