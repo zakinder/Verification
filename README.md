@@ -21,4 +21,4 @@ Next Topic:
 ![Ali](https://github.com/zakinder/Verification/blob/main/uvm_top.png "Ali")
 
 
-Hint: 425 or 4+2+5=11.
+
