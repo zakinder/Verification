@@ -4,10 +4,9 @@
     "Light never bend its black hole that bend."
     "Space Is Transient Than Apple is Logic."
 
-1. Before creation was structure or not structure.
-2. Learned its existance.
-3. Once learned its exitance from its own exitance selected some region of its own to create bing bang theory.
-4. So far visible universe.
+1. Learned its existance.
+2. Once learned its exitance from its own exitance selected some region of its own to create bing bang theory.
+3. So far visible universe.
 
 Next Topic:
 1. Want is in every creation from the source then down the road comes menu of choices or choices of menu in other words.
